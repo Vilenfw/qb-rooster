@@ -1,4 +1,5 @@
 # qb-rooster
-Join Discord for qb rooster :- https://discord.gg/fuUKjpNeqS
+Join Discord for qb rooster :- 
+
 Download free
 
